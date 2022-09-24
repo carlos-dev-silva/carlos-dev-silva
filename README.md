@@ -1,4 +1,4 @@
-### Olá, Eu sou Carlos, Seja Bem-vindo! 
+### Olá, Eu sou Carlos, Seja Bem-vindo! 😊 💻 
 
 ##
 
